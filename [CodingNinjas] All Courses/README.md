@@ -1,1 +1,1 @@
-<img width="920" alt="raycast-untitled (1)" src="https://user-images.githubusercontent.com/51115513/157512794-455e3c44-484c-41b8-ba1f-0db325c5f67f.png">
+<img width="920" alt="raycast-untitled (2)" src="https://user-images.githubusercontent.com/51115513/157513015-a6506786-db49-476a-b364-eaec353a7246.png">
